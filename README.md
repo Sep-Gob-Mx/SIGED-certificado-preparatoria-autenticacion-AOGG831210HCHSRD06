@@ -1,2 +1,0 @@
-# SIGED-certificado-preparatoria-autenticacion-AOGG831210HCHSRD06
-AOGG831210HCHSRD06
